@@ -130,3 +130,4 @@ Choose yourself and your future,
 
 Robert Kiyosaki
 
+![](https://i.pinimg.com/originals/55/1e/b5/551eb57c7f5f42e6fb0f778e343f7a44.jpg) 
